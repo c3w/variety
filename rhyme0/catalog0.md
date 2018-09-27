@@ -28,3 +28,5 @@ as in convection. oven. candy. hansel and gretel. made-up to look like made-up w
 
 as in convection. oven. candy. hansel and gretel. made-up to look like made-up scandal. which is odd. like the number nine. turned on end. backwards. 'turn me on dead man' lennon died for nixon. crook'ed, water. gate. pool of liver. 1969. rage against the machine. wake up. its time. --c3w
 
+
+as dad would say, 'rename the DoD to its original name.. the Department of WAR' . . these peeps bury themselves, 30floors under high-RISES, on the east coast. TEMPEST shielded. watchin you, you can't watch them. black budget. under handed. #allbudgetsmatter. this penta, took their muthafuckin time to find their ass, both times, out. --c3w
