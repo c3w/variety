@@ -32,3 +32,5 @@ as in convection. oven. candy. hansel and gretel. made-up to look like made-up s
 as dad would say, 'rename the DoD to its original name.. the Department of WAR' . . these peeps bury themselves, 30floors under high-RISES, on the east coast. TEMPEST shielded. watchin you, you can't watch them. black budget. under handed. #allbudgetsmatter. this penta, took their muthafuckin time to find their ass, both times, out. --c3w
 
 for 2018. still in our teens. make it right. oxy clean that acne. stand up. straight, gay, or inbetween the lines. read em. cuz I'm startin to flip. off. we got biff. the the house. that we died to pride. flags in his back pocket, snot rag. <start>
+
+LOOK a new flag.. nah its just a fruit rollup. rolled up and eaten. not beaten. food for thought. stop. drop. and roll-up. on fire, stop drinkin this orange. JUICED. UP. pants on fire, lier. hire for neigh'r higher. drop. let the clown loose... in the street... on his own two FEAT. <porta-potties over there, do0d> --c3w
