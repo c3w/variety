@@ -3,6 +3,9 @@
 rev 20181111.0 {thank heavens the clocks still work}
 
 -----
+{newcomers :: please :: watch [this clip](https://www.youtube.com/watch?v=wEXCPHWyWAI&t=20s) for the metre}
+
+-----
 
 
 **///**
