@@ -58,4 +58,8 @@ follow {solution 1} ::
 H is the obfuscation of communicative o diminishing the program{o} ::
 o of H generates W->o^n. H is o of {above}
 
+/// w^n.
+o->wn with C->L+(t){time} C provides {solution 0}
+
+//tests
 
