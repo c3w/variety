@@ -246,3 +246,7 @@ emmigration becomes less critical, and with the promotion of community; doesn't 
 focus is established :: communities for L are promoted; and f just withers off into 'did I pack the right socks for the trip' ;)
 
 </end migratory from f^n} ::c3w
+
+//// re fibonacci {tbd}
+up to 21; with re:eval with the fractal :: promoting fib. sequencing within fib sequencing, etc: towards L
+:: 
