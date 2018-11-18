@@ -5,5 +5,7 @@ pig:meant to say: the articulate solvent of that volume equalant solves art and 
     :: this and THAT and the OTHER thing!?  register your registers :: your circuits :: you're programmatic in-feal-traitors :: feel love when its given, not taken with greed with 'GR great' haters ::    :: h'eal with the oceans :: quotients :: H2O'sence' :: ya feel me :: sentience :: 
     :: from the dawn of time :: till the dust of dusk :: we got:to make this planet clean again, or we'll rust: :
 
-
+re: 'we just can't be crabs in a barrel
+{arrival & departure finale}
+https://youtu.be/zu_hbLIvIcA?t=282
 
