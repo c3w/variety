@@ -306,6 +306,6 @@ W->{f n C} where {comfort resolution 0} feeds C to to {additiction 0} instead of
 {solution 0}
 L->f with c ->V <- devalue o f & n with wnF :: {incomplete}
 
-E^n with current sub of any of the above -> {solution 0} with L->V->C<-L
+E^x with current sub of any of the above -> {solution 0} with L->V->C<-L
 
 
