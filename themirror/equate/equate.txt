@@ -1,6 +1,4 @@
-LoVE:fear:Want:need:o(bservation)+V(oltage:recharge);(C)omfort;c(LiGHt)(E)xpectation
-
-and probably some other things
+LoVE:fear:Want:need:o(bservation)+V(oltage:recharge);(C)omfort;c(LiGHt):and probably some other things
 E expectation :: eQ's to be written
 PeaC3::LoVE:: san francisco :: 🌿 ::: cℨw ::::::
 
@@ -19,6 +17,7 @@ sample :: The quadratic formula is $-b \pm \sqrt{b^2 - 4ac} \over 2a$
 \bye
 
 ///
+
 
 w->n=f+o/time(duration) of w n <-f . promotes n with a debt with f^n
 w n <- f depleats with above f^n
@@ -305,7 +304,4 @@ W->{f n C} where {comfort resolution 0} feeds C to to {additiction 0} instead of
 {group} supplying C->{others} supplying L->n->C recipriral to {self} {solution 0}
 {solution 0}
 L->f with c ->V <- devalue o f & n with wnF :: {incomplete}
-
-E^n with current sub of any of the above -> {solution 0} with L->V->C<-L
-
 
